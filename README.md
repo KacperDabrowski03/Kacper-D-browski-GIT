@@ -1,2 +1,2 @@
-# Kacper-D-browski-GIT
+# Kacper-Dabrowski-GIT
 kacdab03@student.kul.edu.pl
